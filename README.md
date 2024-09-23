@@ -10,7 +10,7 @@
 - 🌱 I'm a **Data Enthusiast** .
 - 👯 I’m looking to collaborate on **Data Analytics**
 
-- 📫 How to reach me **motigichandrashekhar2001@gmail.com**
+- 📫 How to reach me **chandrashekharmotigi56.com**
 
 - ⚡ Fun fact **Can extract data from everywhere**
 
